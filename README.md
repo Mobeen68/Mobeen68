@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **mobeene98@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1e7EoFdUc1u8HVbOEax9NX-W-8vMlJmXb/view](https://drive.google.com/file/d/1e7EoFdUc1u8HVbOEax9NX-W-8vMlJmXb/view)
+- 📄 Know about my experiences [Resume]([https://drive.google.com/file/d/1e7EoFdUc1u8HVbOEax9NX-W-8vMlJmXb/view](https://docs.google.com/document/d/1tnt_lzUExerOB_2gi2OmnL3tqDPIwAmMA86fhUZKPUg/edit?usp=sharing))
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
